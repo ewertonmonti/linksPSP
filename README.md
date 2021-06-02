@@ -2,7 +2,7 @@
 
 Galeão
 https://www.dropbox.com/s/5l6sol1nwgu3z1x/PesquisaSatisfAeroportosGaleao.apk?dl=1
-https://www.dropbox.com/s/lo4r4dv5672cene/PesquisaSatisfAeroportosGaleao_BETA.apk?dl=1
+https://www.dropbox.com/s/xa6f2us4jtx4s5y/PesquisaSatisfAeroportosGaleao_BETA.apk?dl=1
 
 Fraport
 https://www.dropbox.com/s/2lu1ovwz38tdn2v/PesquisaSatisf_Fraport.apk?dl=1
