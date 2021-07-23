@@ -9,7 +9,7 @@ https://www.dropbox.com/s/zh19vqmoakxhrzh/PesquisaSatisf_Fraport.apk?dl=1
  
 GIG
 Versão 22/07/2021 - 17:03
-https://www.dropbox.com/s/6tj862lyq26ozk7/PesquisaSatisfAeroportosGaleao_BETA.apk?dl=1
+https://www.dropbox.com/s/xz08sc60kclbowg/PesquisaSatisfAeroportosGaleao_BETA.apk?dl=1
 
 
 
