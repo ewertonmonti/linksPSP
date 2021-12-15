@@ -10,8 +10,8 @@ https://www.dropbox.com/s/oyilue934nlg9du/PesquisaSatisf_Fraport.apk?dl=1
 GIG: Versão 06/12/2021  09:33:00
 https://www.dropbox.com/s/t9dkbc4eirbfkma/PesquisaSatisfAeroportosGaleao.apk?dl=1
 
-GRU 2022: 09/12/2021 12:00
-https://www.dropbox.com/s/4pxudeljrqpjuhv/PesquisaGruNew.apk?dl=1
+GRU 2022: Versão 14/12 – 9:42
+https://www.dropbox.com/s/it15yzkz44ku007/PesquisaGruNew.apk?dl=1
 
 
 
