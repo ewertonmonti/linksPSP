@@ -14,6 +14,14 @@ O programa abaixo atualizado, resolve os problemas das substituições das grava
 https://www.dropbox.com/s/bjhweftpl6xspyo/PesquisaGruNew_beta.apk?dl=1
 
 
+GIG:
+https://www.dropbox.com/s/974e0pjob9olbcj/PesquisaGIGNew.apk?dl=1
+
+GRU:( Sem o nome Beta)
+https://www.dropbox.com/s/odpmzgz3pognbca/PesquisaGruNew.apk?dl=1
+
+
+
 
 
 
